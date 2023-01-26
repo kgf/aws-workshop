@@ -1,1 +1,1 @@
-I'm still thing figuring this out
+It got better
